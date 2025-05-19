@@ -1,1 +1,0 @@
-# TProgramming_2025
